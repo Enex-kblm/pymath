@@ -114,7 +114,9 @@ Beberapa fitur yang bisa ditambahkan:
 ## 👨‍💻 Author
 
 **nau**
-- 📧 Contact: [Instagram](https://instagram.com/nau)
+- 📧 Contact: [Instagram](https://www.instagram.com/naumeaw?igsh=MXRyM3h2d3dsYWRocQ==)
+**jull**
+- 📧 Contact: [Instagram](https://www.instagram.com/gtwuuyyy_?igsh=MWI1aWFmZDJlc25xNg==)
 
 ---
 
